@@ -1,0 +1,5 @@
+Project B6: LONGITUDINAL CHANGES IN MOODLE ACTIVITY
+
+TEAM:
+Romek Makki
+Martin Maiste
